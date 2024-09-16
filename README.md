@@ -89,17 +89,22 @@ IN WITNESS WHEREOF, the parties hereto have executed this Agreement as of the da
 
 Green Skateboarding
 --
-Lloyd – Cheikh Eubank – Green
-Founder and Owner
+**Lloyd – Cheikh Eubank – Green**
+
+**Founder and Owner**
 
 Quality Solutions Limited
 --
+
 **Gladstone Rose**
+
 **CEO**
 
 Spread Eagles Industries
+
 --
 **Noel Watson**
+
 **Owner**
 
 Please ensure to fill in the specific details such as addresses, names of representatives, and dates where indicated before signing. 
