@@ -41,14 +41,14 @@ This Agreement outlines the terms and conditions under which the Contractors wil
 **3. Compensation and Payment Terms**
 
 - Green Skateboarding agrees to pay the Contractors an hourly rate of US$20.00 for their services.
-- Each Contractor will be compensated for a minimum of 2 hours per week for their participation in the Zoom meetings and additional work related to the implementation of the Business Plan.
+- Each Contractor will be compensated for a maximum of 2 hours per week for their participation in the Zoom meetings and additional work related to the implementation of the Business Plan.
 - Payment for services will be processed on a monthly basis upon receipt of an invoice from each Contractor detailing the hours worked and services provided.
-- Green Skateboarding will also cover all expenses related to the fabrication of the skateboard sample as agreed with the Manufacturer.
+- Green Skateboarding will also cover **all expenses** related to the fabrication of the skateboard sample as agreed with the Manufacturer.
 
 **4. Fabrication Expenses**
 
 - Green Skateboarding will pay the Manufacturer for all expenses incurred in the fabrication of the skateboard sample. These expenses include but are not limited to materials, labor, and equipment used in the production process.
-- The Manufacturer will provide an itemized invoice for the fabrication expenses, which will be reimbursed by Green Skateboarding.
+- The Manufacturer will provide an itemized invoice for the fabrication expenses, which will be **reimbursed by Green Skateboarding**.
 
 **5. Meetings and Reporting**
 
